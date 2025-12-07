@@ -1,0 +1,1 @@
+# WinZip-Privacy-Protector-Activated
